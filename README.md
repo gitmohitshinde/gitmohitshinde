@@ -1,5 +1,5 @@
 - 👋 Hi, I’m MohitShinde.
-- 👀 I’m interested in learning and exploring new tech related things.
+- 👀 I’m interested in learning and exploring new tech related stuff.
 - 🌱 I’m currently Pursuing my masters in Information Technology from IIIT Allahabad.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me:->mohitshinde82@gmail.com
